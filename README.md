@@ -33,4 +33,4 @@ problem-solving, and building practical technology solutions.
 ### 📫 Connect With Me
 
 - GitHub: https://github.com/rutujabenke23
-- LinkedIn: [Add your LinkedIn profile URL]
+- LinkedIn:(https://www.linkedin.com/in/rutuja-benke-b0a74b3aa?utm_source=share_via&utm_content=profile&utm_medium=member_android)
